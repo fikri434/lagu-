@@ -14,3 +14,10 @@ Luapkanlah saja bila harus menangis
 Anakku, ingatlah semua
 Lelah tak akan tersia
 Usah kau takut pada keras dunia
+Akhirnya takkan ada akhir
+Doaku agar kau selalu
+Arungi hidup berbalut
+Senyuman di hati
+Doaku agar kau selalu
+Ingat bahagia
+Meski kadang hidup tak baik saja
